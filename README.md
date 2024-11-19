@@ -1,4 +1,4 @@
-╰ ➤ Hey !! read my pronouns page 
+╰ ➤ Hey !! read my pronouns page :P
 
 <!---
 fossatail/fossatail is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
